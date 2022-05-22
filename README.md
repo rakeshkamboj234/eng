@@ -1,8 +1,8 @@
 # eng
-seems totally plausible - totally acceptable
-parrot species have repurposed the muscles - trained in new way
+seems totally plausible - totally acceptable</br>
+parrot species have repurposed the muscles - trained in new way</br>
 
-important  - integral or essential or vital 
-good - excellent
+important  - integral or essential or vital </br>
+good - excellent</br>
  
-I strongly favor - 
+I strongly favor - </br>
